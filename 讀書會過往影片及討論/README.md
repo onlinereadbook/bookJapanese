@@ -9,3 +9,5 @@
 | 大家 | 逛逛天滿街 | [[影片](https://www.facebook.com/readbook999/videos/1813934562182299/)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/4)] |
 | 大家 | 大阪巴士、海遊館篇 | [[影片](https://www.facebook.com/readbook999/videos/1814393438803078/)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/5)] |
 | 大家| 靜岡,螃蟹餐廳,神作拉麵 | [[影片](https://www.facebook.com/readbook999/videos/1815304392045316/)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/6)] |
+| 瑞希| loft 打工篇 | [[影片](https://www.facebook.com/readbook999/videos/1816442135264875/)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/7)] |
+| 大家| 從貓頭鷹店聊到沖繩 | [[影片](https://www.facebook.com/readbook999/videos/1817213125187776/)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/8)] |
