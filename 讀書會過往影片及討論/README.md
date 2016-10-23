@@ -14,5 +14,7 @@
 | 大家| 飯店情境篇 part1 | [[影片](https://www.facebook.com/readbook999/videos/1819114028331019/)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/9)] |
 | 大家| 飯店情境篇 part2 | [[影片](https://www.facebook.com/readbook999/videos/1819114848330937/)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/9)] |
 | 大家| 人間失格 太宰治 & HNK news | [[影片](https://www.facebook.com/readbook999/videos/1819708954938193/)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/10)] |
+| 瑞希/vivian| NHK x2 + 瑞希的飯店情境 | [[影片](https://www.facebook.com/readbook999/videos/1820227644886324/)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/11)] |
+| 大家| NHK 歡樂念日語 | [[影片](https://www.facebook.com/readbook999/videos/1821336918108730/)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/12)] |
 
 
