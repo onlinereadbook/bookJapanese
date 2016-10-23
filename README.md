@@ -9,8 +9,8 @@
 どうぞ、よろしくお願いします。  
 
 -----
-### 睡前讀一篇
-
+## 睡前讀一篇
+[睡前讀一篇系列討論](https://github.com/onlinereadbook/bookJapanese/tree/master/%E7%9D%A1%E5%89%8D%E8%AE%80%E4%B8%80%E7%AF%87)
 
 ### 目前Facebook社團活動
 
