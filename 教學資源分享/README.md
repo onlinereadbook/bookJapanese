@@ -10,4 +10,5 @@
 
 |名稱 | 連結 |
 | ------ | :------: |
-| ホテル会話 |  [[link](https://www.facebook.com/groups/1113446758690591/1138337382868195/)] | 
+| ホテル会話 |  [[link](https://www.facebook.com/groups/1113446758690591/1138337382868195/)] |
+| ホテル会話 part2 |  [[link](https://www.facebook.com/groups/1113446758690591/1144327688935831/)] | 
