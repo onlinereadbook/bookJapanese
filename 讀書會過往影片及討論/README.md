@@ -18,5 +18,7 @@
 | 大家| NHK 歡樂念日語 | [[影片](https://www.facebook.com/readbook999/videos/1821336918108730/)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/12)] |
 | 大家| 地震篇 | [[影片](https://www.facebook.com/readbook999/videos/1823059174603171/)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/13)] |
 | 瑞希| 飯店情境篇 part3 | [[影片](https://www.facebook.com/readbook999/videos/1824306967811725/)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/14)] |
-
-
+| 大家| NHK短篇語法 | [[影片](https://www.youtube.com/watch?v=_ge_A0earL4&feature=youtu.be)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/15)] |
+| 大家| きみの名なは with NHK | [[影片](https://www.youtube.com/watch?v=Q2cHZAakNBU&feature=youtu.be)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/16)] |
+| 大家| 福岡開了個大洞 with NHK | [影片](https://www.youtube.com/watch?v=mEt0Zw3sFIA&feature=youtu.be)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/17)] |
+| 大家| 保可夢 x 福袋 x 美國大選 with NHK | [[影片](https://www.youtube.com/watch?v=i8dXFoA0kDw)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/18)] |
