@@ -22,3 +22,12 @@
 | 大家| きみの名なは with NHK | [[影片](https://www.youtube.com/watch?v=Q2cHZAakNBU&feature=youtu.be)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/16)] |
 | 大家| 福岡開了個大洞 with NHK | [影片](https://www.youtube.com/watch?v=mEt0Zw3sFIA&feature=youtu.be)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/17)] |
 | 大家| 保可夢 x 福袋 x 美國大選 with NHK | [[影片](https://www.youtube.com/watch?v=i8dXFoA0kDw)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/18)] |
+| 大家| 安培打電話祝賀川普 x 奧林匹克地點 | [[影片](https://www.youtube.com/watch?v=tXWCrbkjxM)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/19)] |
+| 大家| line dev x nhk 珊瑚白化 | [[影片](https://www.youtube.com/watch?v=0Zyt8g_JxP4)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/20)] |
+| 瑞希| 飯店情境篇 敬語篇 | [[影片](https://www.youtube.com/watch?v=m0OEvv9AmzM)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/21)] |
+| 大家| nhk 流感 x 聖誕節蛋糕 x 自動他動 | [[影片](https://www.youtube.com/watch?v=Zy081DYQLA4)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/22)] |
+| 大家| nhk 韓國總理貪污 x 敬語 part1 | [[影片](https://www.youtube.com/watch?v=s0Ax_wToJ20)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/23)] |
+| 大家| nhk 韓國總理貪污 x 敬語 part2 | [[影片](https://www.youtube.com/watch?v=WR7TDQipVTA)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/23)] |
+| 大家| NHK News 好久不見 | [[影片](https://www.youtube.com/watch?v=BU2A6j_Rwl0)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/24)] |
+| 大家| NHK News | [[影片](https://www.youtube.com/watch?v=NQfKjpoBcdQ)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/25)] |
+| 瑞希| 基礎教學 x 好笑廣告誤刊 | [[影片](https://www.youtube.com/watch?v=iAfNn9RTN78)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/26)] |
