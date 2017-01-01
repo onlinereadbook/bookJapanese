@@ -19,3 +19,6 @@
 | 11/21 敬語 |  [[link](https://www.facebook.com/groups/1113446758690591/1113446758690591/)] |
 | 11/22 NHK News補充 |  [[link](https://www.facebook.com/groups/1113446758690591/1169408846427715/)] |
 | たまま的文法 |  [[link](https://www.facebook.com/groups/1113446758690591/1178908385477761/)] | 
+| 12/13 ～ことにしています |  [[link](https://www.facebook.com/groups/1113446758690591/1194852150550051/)] |
+| 12/20 寿司屋|  [[link](https://www.facebook.com/groups/1113446758690591/1201358346566098/)] |
+| 12/28 日文動詞變化總整理|  [[link](https://www.facebook.com/groups/1113446758690591/1207489035953029/)] |

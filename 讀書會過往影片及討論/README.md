@@ -31,3 +31,9 @@
 | 大家| NHK News 好久不見 | [[影片](https://www.youtube.com/watch?v=BU2A6j_Rwl0)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/24)] |
 | 大家| NHK News | [[影片](https://www.youtube.com/watch?v=NQfKjpoBcdQ)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/25)] |
 | 瑞希| 基礎教學 x 好笑廣告誤刊 | [[影片](https://www.youtube.com/watch?v=iAfNn9RTN78)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/26)] |
+| 大家| 太空旅行x聖誕節蛋糕x敬語 | [[影片](https://www.youtube.com/watch?v=Qht5dzRWeWE)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/27)] |
+| 大家| 溫泉標記x香菜流行x天空塔的冰雪 | [[影片](https://www.youtube.com/watch?v=p6VoRbdbnbM)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/28)] |
+| 大家| 南瓜湯 x line賀卡 x 抓主詞動詞 | [[影片](https://www.youtube.com/watch?v=Y9WVkSe68Ns)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/29)] |
+| 大家| 恐怖組織 x 神秘殺人事件 x 討論進階23事 | [[影片](https://www.youtube.com/watch?v=_Ifq_zB-3IQ)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/30)] |
+| 大家| 拉麵大火x諾羅病毒x世界溫度 | [[影片](https://www.youtube.com/watch?v=UDo5H596abU)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/31)] |
+| 大家| 熊本4月大地震 x 星際大戰女主角 x 文法說明 | [[影片](https://www.youtube.com/watch?v=ywmbEBChX-0)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
