@@ -44,6 +44,6 @@
 | 20170211 | 大家 | 台日文化交流 x 隨意聊 | [[影片](https://www.youtube.com/watch?v=VbS_TInwJmo)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
 | 20170214 | 大家 | 香港到日本拍婚紗 x 文法練習 | [[影片](https://www.youtube.com/watch?v=77PNDCeTLhA)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
 | 20170214 (晚)  | 大家 | 東京馬拉松 x 砂漠化  | [[影片](https://www.youtube.com/watch?v=DlVQFtoQAYc)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
-| 20170216 | 大家 | 敍利亞難民留學日本 x 熊本卒業列車 | [[影片](https://www.youtube.com/watch?v=r6f_bz6_cmU)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
-| 20170216 (晚) | 瑞希 | 敬語及謙讓語 | [[影片](https://www.youtube.com/watch?v=r6f_bz6_cmU)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
+| 20170216 | 瑞希 | 敬語及謙讓語 | [[影片](https://www.youtube.com/watch?v=Y7txT_0r2hI)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
+| 20170216 (晚) | 大家 | 敍利亞難民留學日本 x 熊本卒業列車 | [[影片](https://www.youtube.com/watch?v=r6f_bz6_cmU)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
 | 20170218 | 大家| 日本租車 x homestay x 台語與日本的相近字 | [[影片](https://www.youtube.com/watch?v=xoFqicDtaSk)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
