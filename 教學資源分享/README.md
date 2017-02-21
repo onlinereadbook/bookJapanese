@@ -6,6 +6,7 @@
 | ------ | :------: |
 | NHK News |  [[link](http://www3.nhk.or.jp/news/easy/index.html)] | 
 | 東大外國語 |  [[link](http://www.coelang.tufs.ac.jp/mt/ja/dmod/lp/)] | 
+| ちまたの日本語　| [[link](http://www.ajalt.org/rwj/)] |
 
 ## 其他資源分享
 

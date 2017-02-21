@@ -46,4 +46,6 @@
 | 20170214 (晚)  | 大家 | 東京馬拉松 x 砂漠化  | [[影片](https://www.youtube.com/watch?v=DlVQFtoQAYc)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
 | 20170216 | 瑞希 | 敬語及謙讓語 | [[影片](https://www.youtube.com/watch?v=Y7txT_0r2hI)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
 | 20170216 (晚) | 大家 | 敍利亞難民留學日本 x 熊本卒業列車 | [[影片](https://www.youtube.com/watch?v=r6f_bz6_cmU)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
-| 20170218 | 大家| 日本租車 x homestay x 台語與日本的相近字 | [[影片](https://www.youtube.com/watch?v=xoFqicDtaSk)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
+| 20170218 | 大家 | 日本租車 x homestay x 台語與日本的相近字 | [[影片](https://www.youtube.com/watch?v=xoFqicDtaSk)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
+| 20170220(晚) | 瑞希 | 聽力訓練的養成 | [[影片](https://www.youtube.com/watch?v=Qq12U8Sm2Bo)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
+| 20170221 | 大家 | 看懂餐廳網站 | [[影片](https://www.youtube.com/watch?v=4xx4c2B2qvM)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
