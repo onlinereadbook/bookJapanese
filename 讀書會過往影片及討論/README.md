@@ -49,3 +49,5 @@
 | 20170218 | 大家 | 日本租車 x homestay x 台語與日本的相近字 | [[影片](https://www.youtube.com/watch?v=xoFqicDtaSk)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
 | 20170220(晚) | 瑞希 | 聽力訓練的養成 | [[影片](https://www.youtube.com/watch?v=Qq12U8Sm2Bo)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
 | 20170221 | 大家 | 看懂餐廳網站 | [[影片](https://www.youtube.com/watch?v=4xx4c2B2qvM)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
+| 20170221(晚) | 大家 | VR賞櫻 | [[影片](https://www.youtube.com/watch?v=KoxjacuEdX4)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
+| 20170221(晚) | 大家 | 222忍者日 | [[影片](https://www.youtube.com/watch?v=9aco-7Qy7SU)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
