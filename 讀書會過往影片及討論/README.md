@@ -51,3 +51,6 @@
 | 20170221 | 大家 | 看懂餐廳網站 | [[影片](https://www.youtube.com/watch?v=4xx4c2B2qvM)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
 | 20170221(晚) | 大家 | VR賞櫻 | [[影片](https://www.youtube.com/watch?v=KoxjacuEdX4)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
 | 20170221(晚) | 大家 | 222忍者日 | [[影片](https://www.youtube.com/watch?v=9aco-7Qy7SU)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
+| 20170223 | 大家 | 廁所有沒有人 x 築地市場 新建問題 | [[影片](https://www.youtube.com/watch?v=2Z3xC4uei1Q)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
+| 20170223(晚) | 大家 | 小學生的身障奧運相關知識教材 | [[影片](https://www.youtube.com/watch?v=skET0YUmxZQ)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
+| 20170223(晚) | 大家 | 續小學生的身障奧運相關知識教材x平安時代路樹遺跡  | [[影片](https://www.youtube.com/watch?v=bKeinn9v-BM)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
