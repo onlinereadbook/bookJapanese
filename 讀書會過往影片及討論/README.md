@@ -21,7 +21,7 @@
 | - | 大家 | NHK短篇語法 | [[影片](https://www.youtube.com/watch?v=_ge_A0earL4&feature=youtu.be)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/15)] |
 | - | 大家 | きみの名なは with NHK | [[影片](https://www.youtube.com/watch?v=Q2cHZAakNBU&feature=youtu.be)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/16)] |
 | - | 大家 | 福岡開了個大洞 with NHK | [影片](https://www.youtube.com/watch?v=mEt0Zw3sFIA&feature=youtu.be)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/17)] |
-| - | 大家 | 保可夢 x 福袋 x 美國大選 with NHK | [[影片](https://www.youtube.com/watch?v=i8dXFoA0kDw)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/18)] |
+| - | 大家 | 寶可夢 x 福袋 x 美國大選 with NHK | [[影片](https://www.youtube.com/watch?v=i8dXFoA0kDw)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/18)] |
 | - | 大家 | 安培打電話祝賀川普 x 奧林匹克地點 | [[影片](https://www.youtube.com/watch?v=tXWCrbkjxM)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/19)] |
 | - | 大家 | line dev x nhk 珊瑚白化 | [[影片](https://www.youtube.com/watch?v=0Zyt8g_JxP4)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/20)] |
 | - | 瑞希 | 飯店情境篇 敬語篇 | [[影片](https://www.youtube.com/watch?v=m0OEvv9AmzM)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/21)] |
@@ -34,18 +34,32 @@
 | - | 大家 | 太空旅行x聖誕節蛋糕x敬語 | [[影片](https://www.youtube.com/watch?v=Qht5dzRWeWE)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/27)] |
 | - | 大家 | 溫泉標記x香菜流行x天空塔的冰雪 | [[影片](https://www.youtube.com/watch?v=p6VoRbdbnbM)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/28)] |
 | - | 大家 | 南瓜湯 x line賀卡 x 抓主詞動詞 | [[影片](https://www.youtube.com/watch?v=Y9WVkSe68Ns)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/29)] |
+| - | 瑞希 | 壽司屋-深夜篇 | [[影片](https://www.youtube.com/watch?v=H-HmzmqLss0)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/29)] |
 | - | 大家 | 恐怖組織 x 神秘殺人事件 x 討論進階23事 | [[影片](https://www.youtube.com/watch?v=_Ifq_zB-3IQ)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/30)] |
 | - | 大家 | 拉麵大火x諾羅病毒x世界溫度 | [[影片](https://www.youtube.com/watch?v=UDo5H596abU)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/31)] |
 | - | 大家 | 熊本4月大地震 x 星際大戰女主角 x 文法說明 | [[影片](https://www.youtube.com/watch?v=ywmbEBChX-0)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
+| - | 大家 | 2017日本有哪些事 | [[影片](https://www.youtube.com/watch?v=9zFnMj3uTcU)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
+| - | 瑞希 | 加減法 x 數字單位 | [[影片](https://www.youtube.com/watch?v=GTROL8rtNkY)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
+| - | 大家 | 巴西監獄暴動 x 伊斯坦堡殺人事件 x 自動他動 | [[影片](https://www.youtube.com/watch?v=aFqTXR6wBjE)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
+| - | 大家 | 話家常 過年 | [[影片](https://www.youtube.com/watch?v=OeJXqAbRC18)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
+| - | 大家 | 川普 x 機場混亂 | [[影片](https://www.youtube.com/watch?v=OTSwqxBQsWQ)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
+| - | 士鴻 | 日本深度旅遊 什麼sm也有 | [[影片](https://www.youtube.com/watch?v=ZL3PU57gh6U)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
+| - | 瑞希 | 福男 x 瑞希 大大的5段動詞入門 | [[影片](https://www.youtube.com/watch?v=pOj7zkxV-jY)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
+| 20170110(晚) | 大家 | 海嘯破壞後新校區建成 x 105歲自行車世界紀錄 | [[影片](https://www.youtube.com/watch?v=lQaUd5tEY98)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
+| 20170117(晚) | 大家 | 外國人餐廳預約 x 大漁祈願 x 沖繩櫻花 | [[影片](https://www.youtube.com/watch?v=6DjOjaLd7L4)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
+| 20170124(晚) | 大家 | 花粉症 x 玄武壁畫  | [[影片](https://www.youtube.com/watch?v=G5RTiuIOZOI)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
+| 20170124(晚) | 大家 | 桌球最年幼選手 x 線上讀書會閒聊 | [[影片](https://www.youtube.com/watch?v=McBjgP6f9Tg)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
 | 20170201 | 瑞希 | 五段動詞2 | [[影片](https://www.youtube.com/watch?v=D3UyFhupK2Q)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
+| 20170202(晚) | 大家 | 店家人手不足及自動送餐機x伊豆金目鯛印象電車 | [[影片](https://www.youtube.com/watch?v=EvgA8b5L0uE)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
 | 20170207 | 大家 | 家庭料理 (wiki) | [[影片](https://www.youtube.com/watch?v=KVRMSsEmeYk)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
+| 20170207(晚) | 大家 | 太空垃圾 x 惠方卷 | [[影片](https://www.youtube.com/watch?v=nvcCBVlb3yA)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
 | 20170209 | 大家 | 鰹魚片 x 老人食物 | [[影片](https://www.youtube.com/watch?v=z7MJsyveUnk)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
-| 20170209 (晚) | 大家 | 釣魚廣告 x 日語自我介紹練習 | [[影片](https://www.youtube.com/watch?v=6neCJEi8rh8)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
+| 20170209(晚) | 大家 | 釣魚廣告 x 日語自我介紹練習 | [[影片](https://www.youtube.com/watch?v=6neCJEi8rh8)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
 | 20170211 | 大家 | 台日文化交流 x 隨意聊 | [[影片](https://www.youtube.com/watch?v=VbS_TInwJmo)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
 | 20170214 | 大家 | 香港到日本拍婚紗 x 文法練習 | [[影片](https://www.youtube.com/watch?v=77PNDCeTLhA)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
-| 20170214 (晚)  | 大家 | 東京馬拉松 x 砂漠化  | [[影片](https://www.youtube.com/watch?v=DlVQFtoQAYc)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
+| 20170214(晚)  | 大家 | 東京馬拉松 x 砂漠化  | [[影片](https://www.youtube.com/watch?v=DlVQFtoQAYc)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
 | 20170216 | 瑞希 | 敬語及謙讓語 | [[影片](https://www.youtube.com/watch?v=Y7txT_0r2hI)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
-| 20170216 (晚) | 大家 | 敍利亞難民留學日本 x 熊本卒業列車 | [[影片](https://www.youtube.com/watch?v=r6f_bz6_cmU)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
+| 20170216(晚) | 大家 | 敍利亞難民留學日本 x 熊本卒業列車 | [[影片](https://www.youtube.com/watch?v=r6f_bz6_cmU)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
 | 20170218 | 大家 | 日本租車 x homestay x 台語與日本的相近字 | [[影片](https://www.youtube.com/watch?v=xoFqicDtaSk)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
 | 20170220(晚) | 瑞希 | 聽力訓練的養成 | [[影片](https://www.youtube.com/watch?v=Qq12U8Sm2Bo)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
 | 20170221 | 大家 | 看懂餐廳網站 | [[影片](https://www.youtube.com/watch?v=4xx4c2B2qvM)] | [[傳送門](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
