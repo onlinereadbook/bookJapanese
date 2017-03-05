@@ -73,3 +73,4 @@
 | 20170228 | 大家 | 東京馬拉松 x 實用日本學習資訊 | [[影片](https://www.youtube.com/watch?v=aYPrTBX5cj4)] | [[討論區](https://github.com/onlinereadbook/bookJapanese/issues/32)] |
 | 20170228(晚) | 大家 | 優質星期五 x 村上春樹新作 | [[影片](https://www.youtube.com/watch?v=QWcutVBKTmY)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1264865183548747/)] |
 | 20170302(晚) | 大家 | 就業說明會 x 居酒屋禁煙 | [[影片](https://www.youtube.com/watch?v=ZNBVYqs5Dw8)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1266488763386389/)] |
+| 20170304 | 大家 | 聊日本的藥妝店跟藥品的注意事項 | [[影片](https://www.youtube.com/watch?v=zNbYRHnXvcY)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1268675789834353/)] |
