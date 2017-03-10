@@ -74,3 +74,7 @@
 | 20170228(晚) | 大家 | 優質星期五 x 村上春樹新作 | [[影片](https://www.youtube.com/watch?v=QWcutVBKTmY)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1264865183548747/)] |
 | 20170302(晚) | 大家 | 就業說明會 x 居酒屋禁煙 | [[影片](https://www.youtube.com/watch?v=ZNBVYqs5Dw8)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1266488763386389/)] |
 | 20170304 | 大家 | 聊日本的藥妝店跟藥品的注意事項 | [[影片](https://www.youtube.com/watch?v=zNbYRHnXvcY)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1268675789834353/)] |
+| 20170307 | 大家 | 橫濱水族館 X 樂天事件 X 龍貓森林 | [[影片](https://www.youtube.com/watch?v=6-SIZ0PGuhM)] | [[討論區](https://www.youtube.com/watch?v=6-SIZ0PGuhM)] |
+| 20170307(晚) | 大家 | 宅配業調整配送時間x和海豹一起拍照 | [[影片](https://www.youtube.com/watch?v=-xspARS7oD0)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1271177866250812/)] |
+| 20170309(晚) | 大家 | 網路炎上保險 | [[影片](https://www.youtube.com/watch?v=Od0gOGqM5oY)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1273629312672334/)] |
+| 20170309(晚) | 大家 | 75歲駕照更新時認知症檢查 | [[影片](https://www.youtube.com/watch?v=LTTrY5Obxdc)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1273629312672334/)] |
