@@ -78,3 +78,9 @@
 | 20170307(晚) | 大家 | 宅配業調整配送時間x和海豹一起拍照 | [[影片](https://www.youtube.com/watch?v=-xspARS7oD0)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1271177866250812/)] |
 | 20170309(晚) | 大家 | 網路炎上保險 | [[影片](https://www.youtube.com/watch?v=Od0gOGqM5oY)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1273629312672334/)] |
 | 20170309(晚) | 大家 | 75歲駕照更新時認知症檢查 | [[影片](https://www.youtube.com/watch?v=LTTrY5Obxdc)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1273629312672334/)] |
+| 20170314 | 瑞希 | NHK其他資源（適合進階），還有京都遊玩推薦景點 | [[影片](https://www.facebook.com/groups/1113446758690591/permalink/1278411492194116/)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1278411492194116/)] |
+| 20170314 | 瑞希 | 家事代行 | [[影片](https://www.facebook.com/groups/1113446758690591/permalink/1278413368860595/)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1278413368860595/)] |
+| 20170314 | 瑞希 | 補充影片 | [[影片](https://www.facebook.com/groups/1113446758690591/permalink/1278446648857267/)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1278446648857267/)] |
+| 20170314(晚) | 大家 | 湖魚體內出現塑膠垃圾 | [[影片](https://www.youtube.com/watch?v=ucB4vSgK8OM)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1278893245479274/)] |
+| 20170314(晚) | 大家 | 鯉魚旗 | [[影片](https://www.youtube.com/watch?v=tWEraaNEDaE)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1278893245479274/)] |
+| 20170316 | 大家 | 看笑話 學日語 | [[影片](https://www.youtube.com/watch?v=MW7L_tGRrvw)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1280352432000022/)] |
