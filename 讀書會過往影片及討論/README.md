@@ -84,3 +84,6 @@
 | 20170314(晚) | 大家 | 湖魚體內出現塑膠垃圾 | [[影片](https://www.youtube.com/watch?v=ucB4vSgK8OM)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1278893245479274/)] |
 | 20170314(晚) | 大家 | 鯉魚旗 | [[影片](https://www.youtube.com/watch?v=tWEraaNEDaE)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1278893245479274/)] |
 | 20170316 | 大家 | 看笑話 學日語 | [[影片](https://www.youtube.com/watch?v=MW7L_tGRrvw)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1280352432000022/)] |
+| 20170316(晚) | 大家 | 阿拉伯與日本互相合作 x 東京奧運各縣計劃  | [[影片](https://www.youtube.com/watch?v=DaHnIDHPtL4)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1280727968629135/)] |
+| 20170316(晚) | 大家 | 東京奧運各縣計劃x日光東照宮陽明門開放參觀  | [[影片](https://www.youtube.com/watch?v=55TtzksE7m0)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1280727968629135/)] |
+| 20170318 | 大家 | 超值卷 X 人工衛星 X 新鐵路 X 5週12萬日幣旅遊分享 | [[影片](https://www.youtube.com/watch?v=6mmO0QGU9mQ)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1283520921683173/)] |
