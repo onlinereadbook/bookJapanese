@@ -1,7 +1,6 @@
 # 線上日本語讀書會
 
-皆さん〜  
-初めまして。 
+皆さん〜初めまして。 
   
 一緒に日本語を勉強しましょう。  
 これから、お世話になります。  
@@ -19,7 +18,7 @@
 
 [讀書會工具](https://www.facebook.com/groups/1113446758690591/permalink/1120225591346041/)
 
-[Zoom教學] (https://www.facebook.com/polo13999/videos/10210831336413927/)
+[Zoom教學](https://www.facebook.com/polo13999/videos/10210831336413927/)
 
 
 ### 目前Facebook社團活動
