@@ -88,7 +88,7 @@
 | 20170316(夜) | 大家 | 東京奧運各縣計劃x日光東照宮陽明門開放參觀  | [[影片](https://www.youtube.com/watch?v=55TtzksE7m0)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1280727968629135/)] |
 | 20170318 | 大家 | 超值卷 X 人工衛星 X 新鐵路 X 5週12萬日幣旅遊分享 | [[影片](https://www.youtube.com/watch?v=6mmO0QGU9mQ)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1283520921683173/)] |
 | 20170320 | 瑞希 | ちまたの日本語: 沙龍預約 X 聽力訓練 | [[影片](https://www.youtube.com/watch?v=inSMPKhOLn8)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1286515511383714/)] |
-| 20170321(夜) | 大家 | 記錄外人旅行地點系統x飯店機器人Service x NAVER:都市傳說nnn | [[影片](https://www.youtube.com/watch?v=bzQmJ0aKuH0)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1285237551511510/)] |
+| 20170321(夜) | 大家 | 外人旅行地點記錄x飯店機器人Service x NAVER:都市傳說nnn | [[影片](https://www.youtube.com/watch?v=bzQmJ0aKuH0)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1285237551511510/)] |
 | 20170323(夜) | 大家 | NHK NEWS: 選拔高中棒球賽開幕1 | [[影片](https://www.youtube.com/watch?v=QvQUBM0bCYc)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1287481251287140/)] |
 | 20170323(夜) | 大家 | NHK NEWS: 選拔高中棒球賽開幕2 | [[影片](https://www.youtube.com/watch?v=3k0yi2Z61Bc)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1287481251287140/)] |
 | 20170328(夜) | 大家 | NHK EASY NEWS: 緬甸稻殼發電廠 | [[影片](https://www.youtube.com/watch?v=Cb4UT1LSkMo)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1292278994140699/)] |
