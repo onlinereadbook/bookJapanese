@@ -93,6 +93,6 @@
 | 20170323(夜) | 大家 | NHK NEWS: 選拔高中棒球賽開幕2 | [[影片](https://www.youtube.com/watch?v=3k0yi2Z61Bc)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1287481251287140/)] |
 | 20170328(夜) | 大家 | NHK EASY NEWS: 緬甸稻殼發電廠 | [[影片](https://www.youtube.com/watch?v=Cb4UT1LSkMo)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1292278994140699/)] |
 | 20170328(夜) | 大家 | NHK EASY NEWS: 芝麻街新角色 自閉症女孩 | [[影片](https://www.youtube.com/watch?v=2yEHPrwt0Pg)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1292278994140699/)] |
-| 20170330(夜) | 大家 | NHK NEWS: 罐頭捐贈食物銀行 | [[影片](https://www.youtube.com/watch?v=BRMliDzRMk8)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1294034230631842/)] |
-| 20170330(夜) | 大家 | NHK NEWS: 罐頭捐贈食物銀行 x NHK EASY NEWS: 海洋56種生物可能滅絕  | [[影片](https://www.youtube.com/watch?v=KAOAFc7PCpQ)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1294034230631842/)] |
+| 20170330(夜) | 大家 | NHK NEWS: 罐頭捐贈食物銀行1 | [[影片](https://www.youtube.com/watch?v=BRMliDzRMk8)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1294034230631842/)] |
+| 20170330(夜) | 大家 | 罐頭捐贈食物銀行2 x NHK EASY NEWS:海洋56種生物可能滅絕  | [[影片](https://www.youtube.com/watch?v=KAOAFc7PCpQ)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1294034230631842/)] |
 | 20170331 | 大家 | 大蒜 養身食品之王 | [[影片](https://www.youtube.com/watch?v=Tc3pWt7ja_A)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1295012773867321/)] |
