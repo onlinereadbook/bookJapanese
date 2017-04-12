@@ -96,3 +96,8 @@
 | 20170330(夜) | 大家 | NHK NEWS: 罐頭捐贈食物銀行1 | [[影片](https://www.youtube.com/watch?v=BRMliDzRMk8)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1294034230631842/)] |
 | 20170330(夜) | 大家 | 罐頭捐贈食物銀行2 x 海洋56種生物可能滅絕  | [[影片](https://www.youtube.com/watch?v=KAOAFc7PCpQ)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1294034230631842/)] |
 | 20170331 | 大家 | 大蒜 養身食品之王 | [[影片](https://www.youtube.com/watch?v=Tc3pWt7ja_A)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1295012773867321/)] |
+| 20170404 | 大家 | NHK EASY NEWS: 油品漲價 X 福島通車 | [[影片](https://www.youtube.com/watch?v=VwlzORenpbw)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1299059880129277/)] |
+| 20170404(晚) | 大家 | 網路健康文章 : 抗癌蔬菜  | [[影片](https://www.youtube.com/watch?v=DkmflzEP5aw)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1299020133466585/)] |
+| 20170406(晚) | 大家 | NHK NEWS: 福岡公募合格屋台營業開始1 | [[影片](https://www.youtube.com/watch?v=v8c9xm_q-ow)] | [[討論區](https://www.facebook.com/groups/1113446758690591/?multi_permalinks=1301208533247745)] |
+| 20170406(晚) | 大家 | NHK NEWS: 福岡公募合格屋台營業開始2 | [[影片](https://www.youtube.com/watch?v=wvdHMq99f60)] | [[討論區](https://www.facebook.com/groups/1113446758690591/?multi_permalinks=1301208533247745)] |
+| 20170411(晚) | 大家 | NHK EASY NEWS : 待機兒童x迪士尼新設施 | [[影片](https://www.youtube.com/watch?v=EZtCOhmbhvM)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1307074335994498/)] |
