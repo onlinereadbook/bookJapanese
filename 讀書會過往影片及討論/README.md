@@ -101,3 +101,6 @@
 | 20170406(晚) | 大家 | NHK NEWS: 福岡公募合格屋台營業開始1 | [[影片](https://www.youtube.com/watch?v=v8c9xm_q-ow)] | [[討論區](https://www.facebook.com/groups/1113446758690591/?multi_permalinks=1301208533247745)] |
 | 20170406(晚) | 大家 | NHK NEWS: 福岡公募合格屋台營業開始2 | [[影片](https://www.youtube.com/watch?v=wvdHMq99f60)] | [[討論區](https://www.facebook.com/groups/1113446758690591/?multi_permalinks=1301208533247745)] |
 | 20170411(晚) | 大家 | NHK EASY NEWS : 待機兒童x迪士尼新設施 | [[影片](https://www.youtube.com/watch?v=EZtCOhmbhvM)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1307074335994498/)] |
+| 20170413(晚) | 大家 | NHK NEWS : 染井吉野櫻1 | [[影片](https://www.youtube.com/watch?v=0yk-2BS6anY)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1309341825767749/)] |
+| 20170413(晚) | 大家 | NHK NEWS : 染井吉野櫻2 | [[影片](https://www.youtube.com/watch?v=8cybdxMIqnY)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1309341825767749/)] |
+| 20170415 | 瑞希 | ちまたの日本語: 聽力X對話 練習 | [[影片](https://www.youtube.com/watch?v=smSLkEvVRKM)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1311644628870802/)] |
