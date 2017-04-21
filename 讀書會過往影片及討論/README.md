@@ -104,3 +104,6 @@
 | 20170413(晚) | 大家 | NHK NEWS : 染井吉野櫻1 | [[影片](https://www.youtube.com/watch?v=0yk-2BS6anY)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1309341825767749/)] |
 | 20170413(晚) | 大家 | NHK NEWS : 染井吉野櫻2 | [[影片](https://www.youtube.com/watch?v=8cybdxMIqnY)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1309341825767749/)] |
 | 20170415 | 瑞希 | ちまたの日本語: 聽力X對話 練習 | [[影片](https://www.youtube.com/watch?v=smSLkEvVRKM)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1311644628870802/)] |
+| 20170418(晚) | 大家 | EASY NEWS : 明治神宮被潑油 x 淺田真央人形 | [[影片](https://www.youtube.com/watch?v=eBW2aJ0J6Dg)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1315249778510287/)] |
+| 20170418(晚) | 大家 | 日文用法討論 | [[影片](https://www.youtube.com/watch?v=SIjpQvuwu90)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1315249778510287/)] |
+| 20170420(晚) | 大家 | NHK NEWS : 熊本地震後重建課題 | [[影片](https://www.youtube.com/watch?v=QRS3Z2XvwFs)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1317551941613404/)] |
