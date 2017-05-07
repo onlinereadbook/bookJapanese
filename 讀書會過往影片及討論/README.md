@@ -97,20 +97,20 @@
 | 20170330(夜) | 大家 | 罐頭捐贈食物銀行2 x 海洋56種生物可能滅絕  | [[影片](https://www.youtube.com/watch?v=KAOAFc7PCpQ)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1294034230631842/)] |
 | 20170331 | 大家 | 大蒜 養身食品之王 | [[影片](https://www.youtube.com/watch?v=Tc3pWt7ja_A)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1295012773867321/)] |
 | 20170404 | 大家 | NHK EASY NEWS: 油品漲價 X 福島通車 | [[影片](https://www.youtube.com/watch?v=VwlzORenpbw)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1299059880129277/)] |
-| 20170404(晚) | 大家 | 網路健康文章 : 抗癌蔬菜  | [[影片](https://www.youtube.com/watch?v=DkmflzEP5aw)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1299020133466585/)] |
-| 20170406(晚) | 大家 | NHK NEWS: 福岡公募合格屋台營業開始1 | [[影片](https://www.youtube.com/watch?v=v8c9xm_q-ow)] | [[討論區](https://www.facebook.com/groups/1113446758690591/?multi_permalinks=1301208533247745)] |
-| 20170406(晚) | 大家 | NHK NEWS: 福岡公募合格屋台營業開始2 | [[影片](https://www.youtube.com/watch?v=wvdHMq99f60)] | [[討論區](https://www.facebook.com/groups/1113446758690591/?multi_permalinks=1301208533247745)] |
-| 20170411(晚) | 大家 | NHK EASY NEWS : 待機兒童x迪士尼新設施 | [[影片](https://www.youtube.com/watch?v=EZtCOhmbhvM)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1307074335994498/)] |
-| 20170413(晚) | 大家 | NHK NEWS : 染井吉野櫻1 | [[影片](https://www.youtube.com/watch?v=0yk-2BS6anY)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1309341825767749/)] |
-| 20170413(晚) | 大家 | NHK NEWS : 染井吉野櫻2 | [[影片](https://www.youtube.com/watch?v=8cybdxMIqnY)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1309341825767749/)] |
+| 20170404(夜) | 大家 | 網路健康文章 : 抗癌蔬菜  | [[影片](https://www.youtube.com/watch?v=DkmflzEP5aw)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1299020133466585/)] |
+| 20170406(夜) | 大家 | NHK NEWS: 福岡公募合格屋台營業開始1 | [[影片](https://www.youtube.com/watch?v=v8c9xm_q-ow)] | [[討論區](https://www.facebook.com/groups/1113446758690591/?multi_permalinks=1301208533247745)] |
+| 20170406(夜) | 大家 | NHK NEWS: 福岡公募合格屋台營業開始2 | [[影片](https://www.youtube.com/watch?v=wvdHMq99f60)] | [[討論區](https://www.facebook.com/groups/1113446758690591/?multi_permalinks=1301208533247745)] |
+| 20170411(夜) | 大家 | NHK EASY NEWS : 待機兒童x迪士尼新設施 | [[影片](https://www.youtube.com/watch?v=EZtCOhmbhvM)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1307074335994498/)] |
+| 20170413(夜) | 大家 | NHK NEWS : 染井吉野櫻1 | [[影片](https://www.youtube.com/watch?v=0yk-2BS6anY)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1309341825767749/)] |
+| 20170413(夜) | 大家 | NHK NEWS : 染井吉野櫻2 | [[影片](https://www.youtube.com/watch?v=8cybdxMIqnY)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1309341825767749/)] |
 | 20170415 | 瑞希 | ちまたの日本語: 聽力X對話 練習 | [[影片](https://www.youtube.com/watch?v=smSLkEvVRKM)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1311644628870802/)] |
-| 20170418(晚) | 大家 | EASY NEWS : 明治神宮被潑油 x 淺田真央人形 | [[影片](https://www.youtube.com/watch?v=eBW2aJ0J6Dg)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1315249778510287/)] |
-| 20170418(晚) | 大家 | 日文用法討論 | [[影片](https://www.youtube.com/watch?v=SIjpQvuwu90)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1315249778510287/)] |
-| 20170420(晚) | 大家 | NHK NEWS : 熊本地震後重建課題 | [[影片](https://www.youtube.com/watch?v=QRS3Z2XvwFs)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1317551941613404/)] |
-| 20170425(晚) | 大家 | EASY NEWS : 弘前城比特幣、amazon寄送生鮮 | [[影片](https://www.youtube.com/watch?v=KGtw1ODLK_0&feature=youtu.be)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1323833470985251/)] |
-| 20170425(晚) | 大家 | EASY NEWS : 鋼琴裡找到金幣、初茶 | [[影片](https://www.youtube.com/watch?v=XUDGWYrVzI0&feature=youtu.be)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1323833470985251/)] |
-| 20170427(晚) | 大家 | NHK NEWS : 真人將棋x中暑預防 | [[影片](https://www.youtube.com/watch?v=SxHv8WaDRAE)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1325926360775962/)] |
-| 20170502(晚) | 大家 | EASY NEWS : 日本外國人用防災手冊 | [[影片](https://www.youtube.com/watch?v=nDAQNOgHgoM)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1331185433583388/)] |
-| 20170502(晚) | 大家 | EASY NEWS : COOL BIZ | [[影片](https://www.youtube.com/watch?v=LZ5Ltiz4l2w)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1331185433583388/)] |
-| 20170504(晚) | 大家 | NHK NEWS : 60%房東不希望高齡者入者 | [[影片](https://www.youtube.com/watch?v=zY7dHisKH90&feature=youtu.be)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1333072370061361/)] |
-| 20170504(晚) | 瑞希 | NHK NEWS : 貸し渋り補充 | [[影片](https://www.facebook.com/100002022903416/videos/1323774067700011/)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1333055643396367/)] |
+| 20170418(夜) | 大家 | EASY NEWS : 明治神宮被潑油 x 淺田真央人形 | [[影片](https://www.youtube.com/watch?v=eBW2aJ0J6Dg)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1315249778510287/)] |
+| 20170418(夜) | 大家 | 日文用法討論 | [[影片](https://www.youtube.com/watch?v=SIjpQvuwu90)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1315249778510287/)] |
+| 20170420(夜) | 大家 | NHK NEWS : 熊本地震後重建課題 | [[影片](https://www.youtube.com/watch?v=QRS3Z2XvwFs)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1317551941613404/)] |
+| 20170425(夜) | 大家 | EASY NEWS : 弘前城比特幣、amazon寄送生鮮 | [[影片](https://www.youtube.com/watch?v=KGtw1ODLK_0&feature=youtu.be)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1323833470985251/)] |
+| 20170425(夜) | 大家 | EASY NEWS : 鋼琴裡找到金幣、初茶 | [[影片](https://www.youtube.com/watch?v=XUDGWYrVzI0&feature=youtu.be)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1323833470985251/)] |
+| 20170427(夜) | 大家 | NHK NEWS : 真人將棋x中暑預防 | [[影片](https://www.youtube.com/watch?v=SxHv8WaDRAE)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1325926360775962/)] |
+| 20170502(夜) | 大家 | EASY NEWS : 日本外國人用防災手冊 | [[影片](https://www.youtube.com/watch?v=nDAQNOgHgoM)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1331185433583388/)] |
+| 20170502(夜) | 大家 | EASY NEWS : COOL BIZ | [[影片](https://www.youtube.com/watch?v=LZ5Ltiz4l2w)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1331185433583388/)] |
+| 20170504(夜) | 大家 | NHK NEWS : 60%房東不希望高齡者入者 | [[影片](https://www.youtube.com/watch?v=zY7dHisKH90&feature=youtu.be)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1333072370061361/)] |
+| 20170504(夜) | 瑞希 | NHK NEWS : 貸し渋り補充 | [[影片](https://www.facebook.com/100002022903416/videos/1323774067700011/)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1333055643396367/)] |
