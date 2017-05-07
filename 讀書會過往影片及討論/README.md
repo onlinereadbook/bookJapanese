@@ -112,5 +112,5 @@
 | 20170427(夜) | 大家 | NHK NEWS : 真人將棋x中暑預防 | [[影片](https://www.youtube.com/watch?v=SxHv8WaDRAE)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1325926360775962/)] |
 | 20170502(夜) | 大家 | EASY NEWS : 日本外國人用防災手冊 | [[影片](https://www.youtube.com/watch?v=nDAQNOgHgoM)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1331185433583388/)] |
 | 20170502(夜) | 大家 | EASY NEWS : COOL BIZ | [[影片](https://www.youtube.com/watch?v=LZ5Ltiz4l2w)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1331185433583388/)] |
-| 20170504(夜) | 大家 | NHK NEWS : 60%房東不希望高齡者入者 | [[影片](https://www.youtube.com/watch?v=zY7dHisKH90&feature=youtu.be)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1333072370061361/)] |
+| 20170504(夜) | 大家 | NHK NEWS : 60%房東不希望高齡者入住 | [[影片](https://www.youtube.com/watch?v=zY7dHisKH90&feature=youtu.be)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1333072370061361/)] |
 | 20170504(夜) | 瑞希 | NHK NEWS : 貸し渋り補充 | [[影片](https://www.facebook.com/100002022903416/videos/1323774067700011/)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1333055643396367/)] |
