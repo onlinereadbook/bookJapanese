@@ -114,3 +114,7 @@
 | 20170502(夜) | 大家 | EASY NEWS : COOL BIZ | [[影片](https://www.youtube.com/watch?v=LZ5Ltiz4l2w)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1331185433583388/)] |
 | 20170504(夜) | 大家 | NHK NEWS : 60%房東不希望高齡者入住 | [[影片](https://www.youtube.com/watch?v=zY7dHisKH90&feature=youtu.be)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1333072370061361/)] |
 | 20170504(夜) | 瑞希 | NHK NEWS : 貸し渋り補充 | [[影片](https://www.facebook.com/100002022903416/videos/1323774067700011/)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1333055643396367/)] |
+| 20170509(夜) | 大家 | NHK EASY NEWS : 自動花壇 x 聯航換機補償措施 | [[影片](https://www.youtube.com/watch?v=XwRBrkXzPTI&feature=youtu.be)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1337497226285542/)] |
+| 20170511 | Yumi | NHK EASY NEWS | [[影片](https://www.youtube.com/watch?v=9DY5vFcMz84&feature=youtu.be)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1340182099350388/)] |
+| 20170511(夜) | 大家 | NHK NEWS : 黃金週結束機場擁擠1 | [[影片](https://www.youtube.com/watch?v=X4wlacrDB8Y&feature=youtu.be)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1339515646083700/)] |
+| 20170511(夜) | 大家 | NHK NEWS : 黃金週結束機場擁擠2 | [[影片](https://www.youtube.com/watch?v=dIFrnM3fNVg&feature=youtu.be)] | [[討論區](https://www.facebook.com/groups/1113446758690591/permalink/1339515646083700/)] |
